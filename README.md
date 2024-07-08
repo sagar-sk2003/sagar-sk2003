@@ -5,7 +5,7 @@
 - 📫 You can reach me throught :-
 - Github https://github.com/sagar-sk2003 @sagar-sk2003
 - Linkdin https://www.linkedin.com/in/sagar-kushwaha-07235024a @Sagar Kushwaha
-- Instagram https://instagram.com/prolifecool_sagar?igshid=MzNlNGNkZWQ4Mg== @prolifecool_sagar
+- Instagram https://www.instagram.com/hope_sagar70?igsh=MW5nY3Q3dWptemN6cQ==
 
 <!---
 sagar-sk2003/sagar-sk2003 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
